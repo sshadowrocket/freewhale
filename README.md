@@ -1,3 +1,5 @@
+# 自由鲸优惠码 最新官网地址
+
 [自由鲸](https://xuv.cc/out/xin) FreeWahle，也就是原「心阶云 XinjieCloud 心阶」，是一家长期经营中高端线路的SSR/V2Ray机场，4年+平价稳定老牌[低价稳定机场](https://0xo.net/tag/low-price-ssr/)。 自由鲸目前拥有约80条遍布全球的线路节点，大量直连/CN2/BGP中继/IPLC内网专线，海外交流极速稳定，在特殊时期依然稳定坚挺。
 
 
@@ -87,16 +89,18 @@ C-全年0.5T轻量【全节点/性价比】★ 限制 12 个客户端； C-全�
 *   自由鲸官网域名：[https://www.freewhale.art](https://xuv.cc/out/xin)
 *   自由鲸官网域名：[https://www.freewhale.live](https://xuv.cc/out/xin)
 *   自由鲸官网域名：[https://www.freewhale.digital](https://xuv.cc/out/xin)
-*   自由鲸官网域名：[https://freewhale.us](https://www.freewhale.us/auth/register?code=BUtW)
-*   自由鲸官网域名：[https://freewhale.shop](https://www.freewhale.shop/auth/register?code=BUtW)
-*   自由鲸官网域名：[https://freewhale.xyz](https://www.freewhale.xyz/auth/register?code=BUtW)
-*   自由鲸官网域名：[https://freewhale.org](https://www.freewhale.org/auth/register?code=BUtW)
+*   自由鲸官网域名：[https://freewhale.us](https://xuv.cc/out/xin)
+*   自由鲸官网域名：[https://freewhale.shop](https://xuv.cc/out/xin)
+*   自由鲸官网域名：[https://freewhale.xyz](https://xuv.cc/out/xin)
+*   自由鲸官网域名：[https://freewhale.org](https://xuv.cc/out/xin)
 *   自由鲸官网域名：[https://freewhale.pro](https://www.freewhale.pro/auth/register?code=BUtW)
 *   自由鲸官网域名：[https://freewhale.site](https://www.freewhale.site/auth/register?code=BUtW)
 *   自由鲸官网域名：[https://freewhale.world](https://www.freewhale.world/auth/register?code=BUtW)
 
 ### 自由鲸 优惠活动 自由鲸优惠码
 
-2023-12-24 更新自由鲸2023年圣诞节最新优惠码，2023年平价稳定机场推荐[自由鲸](https://xuv.cc/out/xin)。
+2024-02-03 更新自由鲸2024年春节最新优惠码，2024年平价稳定机场推荐[自由鲸](https://xuv.cc/out/xin)。
 
-通过本站专属[自由鲸邀请链接](https://xuv.cc/out/xin)注册，购买「￥124及以上套餐」可以折扣优惠码。 自由鲸2023年9月95折优惠码：[MerryChristmas23](https://xuv.cc/out/xin)「￥124及以上套餐可用，C套餐可叠加」强烈推荐⭐套餐，月均低至10元！
+通过本站专属[自由鲸邀请链接](https://xuv.cc/out/xin)注册，购买「￥124及以上套餐」可以折扣优惠码。
+
+自由鲸2024年春节95折优惠码：[Wintermute](https://xuv.cc/out/xin)「￥124及以上套餐可用，C套餐可叠加」强烈推荐⭐套餐，月均低至10元！
